@@ -1,2 +1,2 @@
-# Sahaf
-ula github kullanmayı bi çözemedik
+# Oro*** evladı Öcalan
+
